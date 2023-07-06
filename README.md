@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://im3.ezgif.com/tmp/ezgif-3-396227e50a.gif" />
+  <img src="https://github.com/howdycloudyarsh/howdycloudyarsh/blob/main/ezgif.com-crop.gif" />
 </p>
 <h1 align="center">Hi 👋, I'm ARSHAD AHMAD</h1>
 <h3 align="center">DEVOPS SUPPORT ENGINEER</h3>
