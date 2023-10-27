@@ -12,7 +12,7 @@
 
 - 📫 How to reach me: **ahmad.arshad2009@gmail.com**
 
-- 📄 Know about my experiences:  [https://drive.google.com/file/d/1DUSjDUFVUdh3UAKlt3pPey093ZS-XoI3/view?usp=sharing](https://drive.google.com/file/d/1DUSjDUFVUdh3UAKlt3pPey093ZS-XoI3/view?usp=sharing)
+- 📄 Know about my experiences:  [https://drive.google.com/file/d/1kKThUz-TZx_EvlKP7BFloRZe0lCEHncS/view?usp=drive_link)
 
 - ⚡ Fun fact **: I think i am funny nerd.😎**
 
